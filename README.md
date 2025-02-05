@@ -1,0 +1,2 @@
+# animecool
+https://animecool.xyz
